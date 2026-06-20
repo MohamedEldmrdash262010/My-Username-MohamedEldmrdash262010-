@@ -49,6 +49,6 @@ My goal is to become a professional software developer and build educational and
 
 ## 📫 Contact
 
-* GitHub: (your link)
-* LinkedIn: (your link)
+* GitHub: (https://github.com/MohamedEldmrdash262010/My-Username-MohamedEldmrdash262010-)
+* LinkedIn: (https://www.linkedin.com/in/mohamed-eldmrdash-45902926a/)
 
